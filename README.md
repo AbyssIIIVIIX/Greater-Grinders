@@ -1,2 +1,0 @@
-# Greater-Grinders
- New Owner 
